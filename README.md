@@ -1,3 +1,3 @@
 # ertanerol.github.io
 
-I will take care of the site soon! ;)
+I will take care of this web-site soon! ;)
